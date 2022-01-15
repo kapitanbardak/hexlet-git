@@ -1,1 +1,1 @@
-Hello, word!
+No code No pain
